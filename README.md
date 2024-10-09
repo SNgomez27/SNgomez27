@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SNgomez27
 - 🌱 I’m currently learning Estoy finalizando un grado superior de dam (Desarrollo de aplicaciones multiplataforma)
-- 💞️ I’m looking to collaborate on Aprender y desarrolarme en mudno de la programacion
+- 💞️ I’m looking to collaborate on Aprender y desarrolarme en mundo de la programacion
 - 📫 How to reach me gomezsantus@gmail.com
 - 😄 Pronouns: El
 - ⚡ Fun fact: Me encanta el fornite o7
