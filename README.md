@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on Aprender y desarrolarme en mundo de la programacion
 - 📫 How to reach me gomezsantus@gmail.com
 - 😄 Pronouns: El
-- ⚡ Fun fact: Me encanta el fornite o7
+- ⚡ Fun fact: Me encanta el Lol y el Mcflurry
 
 <!---
 SNgomez27/SNgomez27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
